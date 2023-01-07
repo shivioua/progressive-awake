@@ -2,14 +2,12 @@
 
 ----
 
-Date: 2011-03-05 22:50  
+Date: 2011-03-05  
 Tags: break beat, progressive house, tech house, trance  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4U05zMm5EbkZ5YjA)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIMzBNSE9lYTRjN1U)
+[![Progressive Awake: Snowdrop (March 2011)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4U05zMm5EbkZ5YjA)](https://1drv.ms/u/s!Alo3H0XlzdZxgX9H-R2X1IPZIWsx?e=6qZHHT)
 
-<!-- DOWNLOAD LINK -->
-[**DOWNLOAD LINK (97MB, 1h 8min)**](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIMzBNSE9lYTRjN1U)
-
+* [**DOWNLOAD LINK (97MB, 1h 8min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgX9H-R2X1IPZIWsx?e=6qZHHT)
 
 TRACKLIST:
 
@@ -26,3 +24,10 @@ TRACKLIST:
 * matteo marini – connected (original mix)
 * proff – we show it (chris reece prog remix)
 * edx – hoover (adam k remix)
+
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
+Enjoy!
+
+----
+
+[**BACK TO MAIN PAGE**](./README.md)

@@ -5,10 +5,10 @@
 Date: 2015-06-16    
 Tags: progressive house, indie dance, nu disco, tech house, deep house, electronica    
 
-[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/7/2/8/51fd-b617-4dbc-94f5-7696dc9bf90d.jpg)](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
+[![Progressive Awake: Uncharted Waters (June 2015)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/7/2/8/51fd-b617-4dbc-94f5-7696dc9bf90d.jpg)](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
 
 * **[Listen on MIXCLOUD](http://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)**
-* **[Download MP3(159MB)](https://1drv.ms/u/s!AmzuuXrjf51v2LMEsjw_jud9W4pgmQ?e=OMZdHV)**
+* **[Download MP3 (159MB)](https://1drv.ms/u/s!AmzuuXrjf51v2LMEsjw_jud9W4pgmQ?e=OMZdHV)**
 
 Tracklist:  
 
@@ -42,3 +42,7 @@ Tracklist:
 <a href="https://pro.beatport.com/track/cafe-del-mar-deadmau5-remix/2091065" target="_blank">BUY</a>
 
 Enjoy & support artists by buying their music!
+
+----
+
+[**BACK TO MAIN PAGE**](./README.md)

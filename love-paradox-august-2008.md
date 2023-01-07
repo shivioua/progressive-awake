@@ -2,12 +2,12 @@
 
 ----
 
-Date: 2008-08-16 23:46    
+Date: 2008-08-16  
 Tags: progressive house, tech house  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ellla1dQbzBaQXM)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIYkpPZHpQZC1rYlk)
+[![Progressive Awake: Love Paradox (August 2008)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ellla1dQbzBaQXM)](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2)  
 
-[**DOWNLOAD (101MB, 1h 13min)**](https://drive.google.com/file/d/0B_4_ynm06YZIYkpPZHpQZC1rYlk/edit?usp=sharing)
+* [**Download MP3 (101MB, 1h 13min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2)  
 
 TRACKLIST:  
 

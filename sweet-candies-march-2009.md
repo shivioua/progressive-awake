@@ -2,12 +2,12 @@
 
 ----
 
-Date: 2009-03-29 23:20  
+Date: 2009-03-29  
 Tags:  progressive house, tech house, techno  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ejV6UG9YLTMtSlE)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIeDFFM1pBamZuYkk)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ejV6UG9YLTMtSlE)](https://1drv.ms/u/s!Alo3H0XlzdZxggvqAjPyndDTXt96?e=3SXc8A)
 
-[**DOWNLOAD (86MB, 63min)**](https://drive.google.com/file/d/0B_4_ynm06YZIeDFFM1pBamZuYkk/edit?usp=sharing)
+[**Download MP3 (86MB, 63min)**](https://1drv.ms/u/s!Alo3H0XlzdZxggvqAjPyndDTXt96?e=3SXc8A)
 
 TRACKLIST:  
 
@@ -25,3 +25,7 @@ TRACKLIST:
 
 All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
 Enjoy.
+
+----
+
+[**BACK TO MAIN PAGE**](./README.md)

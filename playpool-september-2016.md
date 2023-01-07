@@ -5,13 +5,13 @@
 Date: 2016-09-25    
 Tags:  dance, progressive house, vocal    
 
-[![DOWNLOAD](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4aER0VVA4dkltY28)](https://docs.google.com/uc?id=0B1aIvu0NI6o4dlBhMGo5d0Y3bFU&export=download)
+[![Progressive Awake: Playpool (September 2016)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/b/1/f/5/65d1-7608-48cb-949f-f836a56b081f)](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)
   
-[LISTEN @ MIXCLOUD](http://www.mixcloud.com/progressiveawake/playpool-september-2016/)  
-[LISTEN @ SOUNDCLOUD](https://soundcloud.com/progressive-awake/playpool-september-2016/)  
-[**DOWNLOAD (107MB, 47min)**](https://docs.google.com/uc?id=0B1aIvu0NI6o4dlBhMGo5d0Y3bFU&export=download)  
+* [**Listen on MIXCLOUD**](http://www.mixcloud.com/progressiveawake/playpool-september-2016/)  
+* [**Listen on SOUNDCLOUD**](https://soundcloud.com/progressive-awake/playpool-september-2016/)  
+* [**Download MP3 (107MB, 47min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgW9fRhK6BaRHljuX?e=bDamuY)  
   
-Tracklist:  
+TRACKLIST:  
 
 01. chillion ft. seren - wicked game   
 02. cj stone - shining star (original mix)  
@@ -25,7 +25,6 @@ Tracklist:
 
 
 Enjoy & support artists by [buying their music](http://www.junodownload.com/charts/mixcloud/progressiveawake/playpool-september-2016/495514471)!
-
 
 ----
 

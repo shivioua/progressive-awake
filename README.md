@@ -23,6 +23,7 @@
 * [Lost in You, lost myself… (October 2009)](./lost-in-you-lost-myself-october-2009.md)
 * [Doubtfulness Waves (September 2009)](./doubtfulness-waves-september-2009.md)
 * [Ungovernable Appetence (Semptember 2009)](./ungovernable-appetence-semptember-2009.md)
+* [Opium (July 2009)](./opium-july-2009.md)  
 * [7 months of dream (July 2009)](./7-months-of-dream-dont-want-to-wake-up-july-2009.md)
 * [Effervescence (June 2009)](./effervescence-june-2009.md)
 * [Holidays Wanted!!! (June 2009)](./holidays-wanted-june-2009.md)

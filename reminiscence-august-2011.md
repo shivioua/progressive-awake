@@ -2,14 +2,12 @@
 
 ----
 
-Date: 2011-08-12 23:14  
+Date: 2011-08-12  
 Tags: dance, deep house, progressive house, tech house, techno  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4NlpVQy1STXVMZHM)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIclB4M2JnUDNTYUk)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4NlpVQy1STXVMZHM)](https://1drv.ms/u/s!Alo3H0XlzdZxgX5dj5qFvxYGTD_w?e=K0PIqP)
 
-<!-- DOWNLOAD LINK -->
-[**DOWNLOAD LINK (206MB, 1h 28min)**](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIclB4M2JnUDNTYUk)
-
+* [**Download MP3 (206MB, 1h 28min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgX5dj5qFvxYGTD_w?e=K0PIqP)
 
 TRACKLIST:  
 

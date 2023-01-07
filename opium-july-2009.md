@@ -2,8 +2,8 @@
 
 ----
 
-Date: 2009-07-15    
-Tags: **#house** **#progressivehouse** **#progressivetrance** **#techhouse**
+Date: 2009-07-31    
+Tags: **#progressive**, **#tech**, **#house**, **#trance**
 
 <!-- FIXME 
 [![Opium (July 2009)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/2/7/5/a/3508-dfd1-4ef1-a634-ca8dec3a5eee)](https://www.mixcloud.com/progressiveawake/7-months-of-dream-july-2009/)

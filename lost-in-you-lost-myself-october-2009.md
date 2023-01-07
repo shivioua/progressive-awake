@@ -1,14 +1,13 @@
-# Lost in You, lost myself… (October 2009)
+# Lost in You, lost myself... (October 2009)
 
 ----
 
 Date: 2009-10-15    
 Tags:  progressive house, tech house    
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4MVFMaXBma0JRR2s)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIaWNaNk1zNlVfbzQ)
+[![Progressive Awake: Lost in You, lost myself... (October 2009)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4MVFMaXBma0JRR2s)](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)
 
-[**DOWNLOAD (89MB , 65min)**](https://drive.google.com/file/d/0B_4_ynm06YZIaWNaNk1zNlVfbzQ/edit?usp=sharing)
-
+* [**Download MP3 (89MB , 65min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)  
 
 TRACKLIST:  
 
