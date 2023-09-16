@@ -11,8 +11,8 @@ Tags: *#progressive #organic #house #indie #dance*
 
 ----
 
-* [**Watch at YOUTUBE**](https://www.youtube.com/watch?v=kAziBcH73AQ) 
-* [**Listen at MIXCLOUD**](https://www.mixcloud.com/shivioua/progressive-awake-poljica-august-2023/) 
+* [**Watch on YOUTUBE**](https://www.youtube.com/watch?v=kAziBcH73AQ) 
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/shivioua/progressive-awake-poljica-august-2023/) 
 * [**Listen on SPOTIFY**](https://spotify.link/7JqylxP07Cb)
 * [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v4PFcW859rIzkVoO_Ng) 
 
