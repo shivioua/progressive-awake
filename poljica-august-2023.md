@@ -33,7 +33,7 @@ Tracklist:
 * BonÏpso - Human Eyesight (Pysh Remix) <a href="https://www.beatport.com/track/human-eyesight/17309183" target="_blank">BUY</a>
 
 Enjoy & support artists by buying their music or by listening on  
-[Spotify](https://open.spotify.com/user/hopbit/playlist/2t2d8XXigBzIN9VVOZUTm6?si=Xq1rzbIOSISla_sx27XGnQ).
+[Spotify](https://spotify.link/7JqylxP07Cb).
 
 ----
 
