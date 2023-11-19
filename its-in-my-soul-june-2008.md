@@ -5,10 +5,13 @@
 Date: *2008-06-01*
 Tags: *#electro house* *#progressive house* *#tech house*  
 
-[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/400x400/extaudio/b/d/f/a/429c-c6cf-4b33-9ef5-9fe62059486d)](https://youtu.be/_ZUpp6BTWEY)
+[![Progressive Awake](https://thumbnailer.mixcloud.com/unsafe/400x400/extaudio/b/d/f/a/429c-c6cf-4b33-9ef5-9fe62059486d)](https://soundcloud.com/progressiveawake2008/its-in-my-soul-june-2008)
 
 **LISTEN (62min)**
-* <!--[YouTube**](https://youtu.be/_ZUpp6BTWEY), --> [Soundcloud](https://soundcloud.com/progressiveawake2008/its-in-my-soul-june-2008), [MixCloud](https://www.mixcloud.com/progressiveawake/its-in-my-soul-june-2008/), [Spotify](https://open.spotify.com/playlist/6sBdrvvG6vHQQ2duawMm1x?si=d59c498896ea4bb7) 
+* [Soundcloud](https://soundcloud.com/progressiveawake2008/its-in-my-soul-june-2008), [MixCloud](https://www.mixcloud.com/progressiveawake/its-in-my-soul-june-2008/), [Spotify](https://open.spotify.com/playlist/6sBdrvvG6vHQQ2duawMm1x?si=d59c498896ea4bb7)  
+
+<!--[YouTube**](https://youtu.be/_ZUpp6BTWEY), -->
+
 **DOWNLOAD MP3 (71MB)**  
 * [OneDrive](https://1drv.ms/u/s!AmzuuXrjf51v2LISHaczUR1KVbJG0A?e=sg6TsD)
 * [GoogleDrive](https://drive.google.com/uc?id=0B1aIvu0NI6o4eVF6ZVYwWVhsdkk&export=download&resourcekey=0-KfnysDc6GvI5RHW4rdU2sQ)
