@@ -5,7 +5,7 @@
 Date: *2008-07-14*  
 Tags: *#progressive house*, *#tech house*  
 
-[![Progressive Awake: It’s in my soul 2 (July 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/f/3/2/a/9182-4f44-49e4-93a6-3efe5fb0cfbb)](https://soundcloud.com/progressiveawake2008/its-in-my-soul-2-july-2008)  
+[![Progressive Awake: It’s in my soul 2 (July 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/f/3/2/a/9182-4f44-49e4-93a6-3efe5fb0cfbb)](https://youtu.be/rDjALruUaio)  
 
 * **Listen on**: [YouTube](https://youtu.be/rDjALruUaio), [Soundcloud](https://soundcloud.com/conorbolton366/its-in-my-soul-2-july-2008?si=e224e18ff00d4a34aa81b43261eb3633&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing), [MixCloud](https://www.mixcloud.com/progressiveawake2008/its-in-my-soul-2-july-2008/), [Spotify](https://open.spotify.com/playlist/4oiNECHLO9QvzxBHclqcV3?si=76135bb319074013)  
 * Visit my [Patreon](https://www.patreon.com/shivioua) website if you want to download MP3 version.
