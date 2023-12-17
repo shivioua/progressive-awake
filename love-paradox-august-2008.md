@@ -2,12 +2,14 @@
 
 ----
 
-Date: 2008-08-16  
-Tags: progressive house, tech house  
+Date: *2008-08-16*  
+Tags: *#progressivehouse #techhouse*  
 
-[![Progressive Awake: Love Paradox (August 2008)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4ellla1dQbzBaQXM)](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2)  
+[![Progressive Awake: Love Paradox (August 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/a/0/4/0/0a9e-b6c6-4b04-bd02-98f2d125462c)](https://youtu.be/8Kf3LXU5VPE)  
 
-* [**Download MP3 (101MB, 1h 13min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2)  
+* **Listen on**: [YouTube](https://youtu.be/8Kf3LXU5VPE), [Soundcloud](https://soundcloud.com/conorbolton366/love-paradox-august-2008), [MixCloud](https://www.mixcloud.com/progressiveawake2008/love-paradox-august-2008/), [Spotify](https://open.spotify.com/playlist/3PhLHHYpfVht0W8UbyrdcT?si=ae534b930be340d1)  
+* Support me on [Patreon](https://www.patreon.com/shivioua) if you want to download MP3 version of this set.
+<!-- Download MP3 (101MB, 1h 13min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2) -->
 
 TRACKLIST:  
 
@@ -25,7 +27,7 @@ TRACKLIST:
 * adam k, soha – twilight (original mix revisited)
 * marco petralia – just believe (original mix)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
 Enjoy.
 
 ----
