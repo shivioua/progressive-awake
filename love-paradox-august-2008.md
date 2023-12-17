@@ -9,7 +9,6 @@ Tags: *#progressivehouse #techhouse*
 
 * **Listen on**: [YouTube](https://youtu.be/8Kf3LXU5VPE), [Soundcloud](https://soundcloud.com/conorbolton366/love-paradox-august-2008), [MixCloud](https://www.mixcloud.com/progressiveawake2008/love-paradox-august-2008/), [Spotify](https://open.spotify.com/playlist/3PhLHHYpfVht0W8UbyrdcT?si=ae534b930be340d1)  
 * Support me on [Patreon](https://www.patreon.com/shivioua) if you want to download MP3 version of this set.
-<!-- Download MP3 (101MB, 1h 13min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgWNOtiXnzGafxvwl?e=zp0Cn2) -->
 
 TRACKLIST:  
 
