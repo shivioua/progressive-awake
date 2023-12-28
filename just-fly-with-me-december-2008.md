@@ -2,14 +2,14 @@
 
 ----
 
-Date: 2008-12-19 22:15  
-Tags: progressive house  
+Date: *2008-12-19*  
+Tags: *#progressivehouse*  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VGdUYmI4THQ0S3c)](https://www.mixcloud.com/progressiveawake/just-fly-with-me-december-2008/)
+[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VGdUYmI4THQ0S3c)](https://youtu.be/cBL0XmzsqAw)
 
+Listen on: 
 
-* Length: **66 min**
-* [**DOWNLOAD (92MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LIoA_hBim6B03zAXw?e=vd3pBm)
+* [**YOUTUBE**](https://youtu.be/cBL0XmzsqAw)
 * [**SOUNDCLOUD**](https://soundcloud.com/progressive-awake/just-fly-with-me-december-2008)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake/just-fly-with-me-december-2008/)
 

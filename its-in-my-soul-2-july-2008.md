@@ -7,8 +7,11 @@ Tags: *#progressive house*, *#tech house*
 
 [![Progressive Awake: It’s in my soul 2 (July 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/f/3/2/a/9182-4f44-49e4-93a6-3efe5fb0cfbb)](https://youtu.be/rDjALruUaio)  
 
-* **Listen on**: [YouTube](https://youtu.be/rDjALruUaio), [Soundcloud](https://soundcloud.com/conorbolton366/its-in-my-soul-2-july-2008), [MixCloud](https://www.mixcloud.com/progressiveawake2008/its-in-my-soul-2-july-2008/), [Spotify](https://open.spotify.com/playlist/4oiNECHLO9QvzxBHclqcV3?si=76135bb319074013)  
-* Support me on [Patreon](https://www.patreon.com/shivioua) if you want to download MP3 version of this set.
+Listen on: 
+* [**YOUTUBE**](https://youtu.be/rDjALruUaio) 
+* [**SOUNDCLOUD**](https://soundcloud.com/conorbolton366/its-in-my-soul-2-july-2008)
+* [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/its-in-my-soul-2-july-2008/)
+* [**SPOTIFY**](https://open.spotify.com/playlist/4oiNECHLO9QvzxBHclqcV3?si=76135bb319074013)  
 
 TRACKLIST:  
 
@@ -26,7 +29,8 @@ TRACKLIST:
 * hybrid – finished symphony (deadmau5 remix)
 * karen overton – your loving arms (club mix)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
+If you like what I've created then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).  
 Enjoy.
 
 ----

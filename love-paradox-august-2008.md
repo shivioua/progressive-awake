@@ -7,8 +7,11 @@ Tags: *#progressivehouse #techhouse*
 
 [![Progressive Awake: Love Paradox (August 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/a/0/4/0/0a9e-b6c6-4b04-bd02-98f2d125462c)](https://youtu.be/8Kf3LXU5VPE)  
 
-* **Listen on**: [YouTube](https://youtu.be/8Kf3LXU5VPE), [Soundcloud](https://soundcloud.com/conorbolton366/love-paradox-august-2008), [MixCloud](https://www.mixcloud.com/progressiveawake2008/love-paradox-august-2008/), [Spotify](https://open.spotify.com/playlist/3PhLHHYpfVht0W8UbyrdcT?si=ae534b930be340d1)  
-* Support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua) if you want to download MP3 version of this set.
+Listen on: 
+* [**YOUTUBE**](https://youtu.be/8Kf3LXU5VPE)
+* [**SOUNDCLOUD**](https://soundcloud.com/conorbolton366/love-paradox-august-2008)
+* [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/love-paradox-august-2008/)
+* [**SPOTIFY**](https://open.spotify.com/playlist/3PhLHHYpfVht0W8UbyrdcT?si=ae534b930be340d1)  
 
 TRACKLIST:  
 
@@ -27,6 +30,7 @@ TRACKLIST:
 * marco petralia – just believe (original mix)
 
 All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
+If you like what I've created then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).   
 Enjoy.
 
 ----
