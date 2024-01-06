@@ -5,7 +5,7 @@
 Date: *2008-12-19*  
 Tags: *#progressivehouse*  
 
-[![Progressive Awake](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4VGdUYmI4THQ0S3c)](https://youtu.be/cBL0XmzsqAw)
+[![Progressive Awake - Just fly with me (December 2008)](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/3/3/7/f/8fec-5a67-4cce-a217-1f65320bf882)](https://youtu.be/cBL0XmzsqAw)
 
 Listen on: 
 
@@ -28,9 +28,8 @@ TRACKLIST:
 - fuzzy hair – be free (thomas schwartz mix)
 - uwe worlitzer – fly with me (vids rmx)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
-You can listen them on <a href="https://open.spotify.com/playlist/2t2d8XXigBzIN9VVOZUTm6?si=cZPU3beYQZqZHL-nrxaA4g">Spotify</a> as well.  
-Enjoy.
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>. If you like what I've created then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).  
+Enjoy!  
 
 ----
 
