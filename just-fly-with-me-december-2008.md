@@ -12,6 +12,7 @@ Listen on:
 * [**YOUTUBE**](https://youtu.be/cBL0XmzsqAw)
 * [**SOUNDCLOUD**](https://soundcloud.com/progressive-awake/just-fly-with-me-december-2008)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake/just-fly-with-me-december-2008/)
+* [**SPOTIFY**](https://open.spotify.com/playlist/3NuUgiJ7aL62176NS5iLoX?si=91b298cc92834a18)
 
 TRACKLIST:  
 
