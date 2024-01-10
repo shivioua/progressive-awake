@@ -9,7 +9,7 @@ Tags: *#electro house* *#progressive house* *#tech house*
 
 Listen on:
 * [**YOUTUBE**](https://youtu.be/_ZUpp6BTWEY)
-* [**SOUNDCLOUD**](https://soundcloud.com/progressiveawake2008/its-in-my-soul-june-2008)
+* [**SOUNDCLOUD**](https://soundcloud.com/progawake200812/its-in-my-soul-june-2008)
 * [**MIXCLOOUD**](https://www.mixcloud.com/progressiveawake/its-in-my-soul-june-2008/)
 * [**SPOTIFY**](https://open.spotify.com/playlist/6sBdrvvG6vHQQ2duawMm1x?si=d59c498896ea4bb7)
 
