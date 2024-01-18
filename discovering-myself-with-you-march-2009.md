@@ -2,12 +2,19 @@
 
 ----
 
-Date: 2009-03-03 22:58  
-Tags:  progressive house  
+Date: *2009-03-03*  
+Tags: *#progressivehouse*  
 
-[![Discovering myself with You (March 2009)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4QlBuRDJZdk1WMHM)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZINy1PMWFXMEVnZVk)
+[![Progressive Awake - Discovering myself with You (March 2009)](./discovering-myself-with-you-march-2009.jpg)](https://soundcloud.com/progawake09/discovering-myself-with-you-march-2009)
 
-* [**Download MP3 (47MB, 52min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgRlLGi3yyimkgtEa?e=TiQq78)  
+Listen on: 
+
+<!-- * [**YOUTUBE**](FIXME) -->
+* [**SOUNDCLOUD**](https://soundcloud.com/progawake09/discovering-myself-with-you-march-2009)
+<!-- * [**MIXCLOUD**](FIXME)
+* [**SPOTIFY**](FIXME) -->
+
+
 
 TRACKLIST:  
 
@@ -21,9 +28,10 @@ TRACKLIST:
 * thomas schwartz – neptune rising (original mix)
 * thomas schwartz, fausto fanizza – jambe myth (original mix)
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.
-Enjoy.
+All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>. 
 
+If you like what I've created then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).  
+Enjoy!  
 
 ----
 
