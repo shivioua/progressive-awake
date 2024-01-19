@@ -11,7 +11,7 @@ Listen on:
 
 <!-- * [**YOUTUBE**](FIXME) -->
 * [**SOUNDCLOUD**](https://soundcloud.com/progawake09/discovering-myself-with-you-march-2009)
-<!-- * [**MIXCLOUD**](FIXME) -->
+* [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/discovering-myself-with-you-march-2009/)
 <!-- * [**SPOTIFY**](FIXME) -->
 
 
