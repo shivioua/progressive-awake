@@ -5,16 +5,14 @@
 Date: *2009-03-03*  
 Tags: *#progressivehouse*  
 
-[![Progressive Awake - Discovering myself with You (March 2009)](./discovering-myself-with-you-march-2009.jpg)](https://soundcloud.com/progawake09/discovering-myself-with-you-march-2009)
+[![Progressive Awake - Discovering myself with You (March 2009)](./discovering-myself-with-you-march-2009.jpg)](https://youtu.be/IUXabXSYVQQ)
 
 Listen on: 
 
-<!-- * [**YOUTUBE**](FIXME) -->
+* [**YOUTUBE**](https://youtu.be/IUXabXSYVQQ)
 * [**SOUNDCLOUD**](https://soundcloud.com/progawake09/discovering-myself-with-you-march-2009)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/discovering-myself-with-you-march-2009/)
 * [**SPOTIFY**](https://open.spotify.com/playlist/7AhXiYRENLCNTNtCsQ22VW?si=60ee6200fbaf40ef)
-
-
 
 TRACKLIST:  
 
