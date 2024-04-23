@@ -11,7 +11,7 @@ Listen on:
 <!-- * [**YOUTUBE**](https://fix.me) -->
 * [**SOUNDCLOUD**](https://soundcloud.com/progawake09/sweet-candies-march-2009)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/sweet-candies-march-2009/)
-<!-- * [**SPOTIFY**](https://fix.me) -->
+* [**SPOTIFY**](https://open.spotify.com/playlist/3SFnraxmtGI7mokSFaHhSG?si=7ff604e9ca804e47)
 <!-- [**Download MP3 (86MB, 63min)**](https://1drv.ms/u/s!Alo3H0XlzdZxggvqAjPyndDTXt96?e=3SXc8A) -->
 
 TRACKLIST:  
