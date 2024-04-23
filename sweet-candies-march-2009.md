@@ -5,11 +5,11 @@
 Date: *2009-03-29*  
 Tags: *#progressive house*, *#tech house*, *#techno*  
 
-[![Progressive Awake - Sweet Candies](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/f/3/2/3/b65c-315e-40b6-afcd-70ad6348faf9)](https://www.mixcloud.com/progressiveawake2008/sweet-candies-march-2009/)
+[![Progressive Awake - Sweet Candies](https://thumbnailer.mixcloud.com/unsafe/390x390/extaudio/f/3/2/3/b65c-315e-40b6-afcd-70ad6348faf9)](https://soundcloud.com/progawake09/sweet-candies-march-2009)
 
 Listen on:  
 <!-- * [**YOUTUBE**](https://fix.me) -->
-<!-- * [**SOUNDCLOUD**](https://fix.me) -->
+* [**SOUNDCLOUD**](https://soundcloud.com/progawake09/sweet-candies-march-2009)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2008/sweet-candies-march-2009/)
 <!-- * [**SPOTIFY**](https://fix.me) -->
 <!-- [**Download MP3 (86MB, 63min)**](https://1drv.ms/u/s!Alo3H0XlzdZxggvqAjPyndDTXt96?e=3SXc8A) -->
