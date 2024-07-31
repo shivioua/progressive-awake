@@ -6,7 +6,7 @@ Date: *2009-04-16*
 Tags: *#progressive house*, *#techno*, *#dance*  
 
 <!-- FIXME: should point to YouTube Mix-->
-[![When I am overtaken by... (April 2009) ](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/d/6/5/d/8ee1-87ad-4738-bfcb-50695b62ed0a)](https://www.mixcloud.com/progressiveawake/when-i-am-overtaken-by-april-2009/)
+[![When I am overtaken by... (April 2009) ](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/d/6/5/d/8ee1-87ad-4738-bfcb-50695b62ed0a)](https://soundcloud.com/progawake09/when-i-am-overtaken-by-april-2009)
 
 Listen on:
 <!-- * [**YOUTUBE**](https://www.youtube.com/watch?v=FIXME) -->
