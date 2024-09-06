@@ -10,11 +10,6 @@ Tags: *#psy trance*, *#goa trance*, *#dubstep*
 ## Listen and watch on...
 
 * [**YOUTUBE**](https://www.youtube.com/watch?v=_5GEcFGcYNU)  
-<!-- FIXME
-* [**SOUNDCLOUD**](https://soundcloud.com/progawake09/when-i-am-overtaken-by-april-2009)
-* [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake/when-i-am-overtaken-by-april-2009/)  
-* [**SPOTIFY**](https://open.spotify.com/playlist/4bjwbGzRJ9v7ZFnSXLEomO?si=0e1a38fb17d743d8)
--->
 
 This mix was performed live during [Niedzielówka #OPENDECX](https://www.facebook.com/events/391416550625169/) 
 in [Backstreet Bar Warszawa](https://www.instagram.com/backstreetbarwarszawa) on August 11, 2024. Event was organized by [ULAT](https://www.facebook.com/ulatdeejay/)/[Michał Ulatowski](https://www.instagram.com/ulat.music.techno/).  
