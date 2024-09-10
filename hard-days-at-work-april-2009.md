@@ -15,7 +15,9 @@ Dive into the vibes of April 2009 with this electrifying DJ set recorded right f
 
 * [**YOUTUBE**](https://youtu.be/QF_UXuIfPmU)   
 
-TRACKLIST:  
+### Tracklist
+
+Most of the tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
 
 * 00:00 inkfish, dawid west - hello piano (sebastien leger remix)
   /[_YouTube_](https://www.youtube.com/watch?v=osh5xBfBatg),[_Beatport_](https://www.beatport.com/track/hello-piano/676755)/  
@@ -37,7 +39,6 @@ TRACKLIST:
 * 56:58 jhonny & peps, squid - all in all out (original mix)
   /[_Beatport_](https://www.beatport.com/track/all-in-all-out/771990)/  
 
-All tracks are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
 If you like what I am creating then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).  
 Enjoy!  
 
