@@ -5,13 +5,14 @@
 Date: *2009-04-23*  
 Tags: *#progressive house*, *#tech house*, *#techno*  
 
+
 [![Shivioua - Hard days at work (April 2009)](./images/hard-days-at-work-april-2009.jpg)](https://youtu.be/QF_UXuIfPmU)  
 
 ### Description
 
 Dive into the vibes of April 2009 with this electrifying DJ set recorded right from the comfort of home! This mix is the 9th installment in the Progressive Awake series, promising a journey through pulsating beats and immersive soundscapes. Let the rhythms take you on a memorable ride!
 
-### Listen and watch on...
+### Listen on...
 
 * [**YOUTUBE**](https://youtu.be/QF_UXuIfPmU)   
 
