@@ -6,7 +6,7 @@ Date: *2009-05-16*
 Tags: *#progressive house*, *#tech house*  
 
 <!-- FIXME: YT link instead of Mixcloud -->
-[![Shivioua - Midgard (May 2009)](./images/midgard-may-2009.jpg)](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)  
+[![Shivioua - Midgard (May 2009)](./images/midgard-may-2009.jpg)](https://youtu.be/x03URnCK6Ss)  
 
 ### Description
 
@@ -14,8 +14,9 @@ Step into the vibe of May 2009 with this DJ mix inspired by an unforgettable tri
 
 This is the 10th installment of the Progressive Awake series, it takes you on a journey through progressive house and tech house, blending deep, pulsating beats with the echoes of those vibrant experiences.  
 
-### Listen on...
+### Listen On
 
+* [**YOUTUBE**](https://youtu.be/x03URnCK6Ss)  
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
 
 <!-- 
