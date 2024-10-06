@@ -6,7 +6,7 @@ Date: *2009-05-16*
 Tags: *#progressive house*, *#tech house*  
 
 <!-- FIXME: YT link instead of Mixcloud -->
-[![Shivioua - Midgard (May 2009)](./images/midgard-may-2009.jpg)](https://youtu.be/x03URnCK6Ss)  
+[![Shivioua - Midgard (May 2009)](./images/midgard-may-2009.jpg)](https://youtu.be/0ih1YWGmAgQ)  
 
 ### Description
 
@@ -16,7 +16,7 @@ This is the 10th installment of the Progressive Awake series, it takes you on a 
 
 ### Listen On
 
-* [**YOUTUBE**](https://youtu.be/x03URnCK6Ss)  
+* [**YOUTUBE**](https://youtu.be/0ih1YWGmAgQ)  
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake/midgard-may-2009/)
 
 <!-- 
