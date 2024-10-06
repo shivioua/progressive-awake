@@ -10,7 +10,7 @@ Tags: *#progressive house*, *#tech house*
 
 ### Description
 
-Step into the vibe of May 2009 with this DJ mix inspired by an unforgettable trip to Krakow with friends. From the historic streets of Kazimierz to a bonfire by Zakrzówek's waters, and a great night at Midgard club, where After Sky set the tone — these moments shaped the energy of this mix. 
+Step into the vibe of May 2009 with this DJ mix inspired by an unforgettable trip to Krakow with friends. From the historic streets of Kazimierz to a bonfire by Zakrzówek's waters, and a great night at Midgard club, where DJ After Sky set the tone — these moments shaped the energy of this mix. 
 
 This is the 10th installment of the Progressive Awake series, it takes you on a journey through progressive house and tech house, blending deep, pulsating beats with the echoes of those vibrant experiences.  
 
