@@ -1,11 +1,11 @@
-# Holidays Wanted!!! (June 2009)
+# Lobotomia!!! (June 2009)
 
 ----
 
 Date: *2009-06-14*  
 Tags: *#progressive house*, *#progressive trance*      
 
-[![Shivioua - Holidays Wanted!!! (June 2009)](./images/holidays-wanted-june-2009.jpg)](https://youtu.be/8Utd1gg3zlM)
+[![Shivioua - Lobotomia!!! (June 2009)](./images/lobotomia-june-2009.jpg)](https://youtu.be/8Utd1gg3zlM)
 
 ### Description
 

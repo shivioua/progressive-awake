@@ -27,7 +27,7 @@
 * [Opium (July 2009)](./opium-july-2009.md)  
 * [7 months of dream (July 2009)](./7-months-of-dream-dont-want-to-wake-up-july-2009.md)
 * [Effervescence (June 2009)](./effervescence-june-2009.md)
-* [Holidays Wanted!!! (June 2009)](./holidays-wanted-june-2009.md)
+* [Lobotomia (June 2009)](./lobotomia-june-2009.md)
 * [Midgard (May 2009)](./midgard-may-2009.md)
 * [Hard days at work (April 2009)](./hard-days-at-work-april-2009.md)
 * [When I am overtaken by... (April 2009)](./when-i-am-overtaken-by-april-2009.md)
