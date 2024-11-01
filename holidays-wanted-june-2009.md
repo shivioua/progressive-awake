@@ -9,7 +9,7 @@ Tags: *#progressive house*, *#progressive trance*
 
 ### Description
 
-Step into mid-June 2009 with this DJ mix, recorded just after the Lobotomia party and on the cusp of much-needed summer break plans. With work and studies piling up, creating this set became a release — a way to breathe, reset, and escape from the rush of daily responsibilities. As the 11th mix in the Progressive Awake series, it’s filled with immersive progressive house beats, designed to transport you and offer a moment of pure detachment.
+Step into mid-June 2009 with this DJ mix, recorded just after the Lobotomia party and on the cusp of much-needed summer break plans. With work and studies piling up, creating this set became a release — a way to breathe, reset, and escape from the rush of daily responsibilities. As the 11th mix in the Progressive Awake series, it’s filled with immersive progressive house and trance beats, designed to transport you and offer a moment of pure detachment.
 
 ### Listen on
 
