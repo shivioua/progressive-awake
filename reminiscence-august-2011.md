@@ -8,7 +8,7 @@ Tags: dance, deep house, progressive house, tech house, techno
 [![Shivioua - Reminiscence (August 2011)](./images/reminiscence-august-2011.jpg)](https://www.mixcloud.com/progressiveawake2010/reminiscence-august-2011/)
 
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/reminiscence-august-2011/)
-* [**Download MP3 (206MB, 1h 28min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgX5dj5qFvxYGTD_w?e=K0PIqP)
+* [**Download MP3**](https://1drv.ms/u/s!Alo3H0XlzdZxgX5dj5qFvxYGTD_w?e=K0PIqP)
 
 TRACKLIST:  
 
