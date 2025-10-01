@@ -7,9 +7,9 @@ Tags:  dance, progressive house
 
 [![Shivioua - First Snow (November 2010)](./images/first-snow-november-2010.jpg)](https://www.mixcloud.com/progressiveawake/first-snow-november-2020/)  
   
-* [**Listen on MIXCLOUD (57min)**](https://www.mixcloud.com/progressiveawake/first-snow-november-2020/)  
-* [**Listen on SOUNDCLOUD (57min)**](https://soundcloud.com/progressive-awake/progressive-awake-first-snow-november-2010)  
-* [**Download MP3 (80MB)**](https://1drv.ms/u/s!AmzuuXrjf51v2LJw3M-AncB_ZIW5FA)  
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/progressiveawake/first-snow-november-2020/)  
+* [**Listen on SOUNDCLOUD**](https://soundcloud.com/progressive-awake/progressive-awake-first-snow-november-2010)  
+* [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LJw3M-AncB_ZIW5FA)  
 
 TRACKLIST:  
 
