@@ -5,8 +5,9 @@
 Date: 2009-09-05    
 Tags: progressive house    
 
-[![Doubtfulness Waves (September 2009)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4aWF0czBGQmJjOE0)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIOWREbnlvSWhqZzA)  
+[![Shivioua - Doubtfulness Waves (September 2009)](./images/doubtfulness-waves-september-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/doubtfulness-waves-september-2009/)  
 
+* [**Mixcloud**](https://www.mixcloud.com/progressiveawake2010/doubtfulness-waves-september-2009/)
 * [**Download MP3 (88MB, 64min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgR9NFbrQLg9AzsLF?e=vVKTHN)  
 
 TRACKLIST:  
