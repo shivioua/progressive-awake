@@ -5,9 +5,10 @@
 Date: 2009-06-26    
 Tags: progressive house    
 
-[![Effervescence (June 2009)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4LUhKT3BwSUxzd2s)](https://drive.google.com/uc?export=download&id=0B_4_ynm06YZIMzNOTzF1b3dlaUk)
+[![Shivioua - Effervescence (June 2009)](./images/effervescence-june-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
 
-[**Download MP3 (56MB, 60min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgShv5OMx6gv4Jevn?e=wJ5PwN)  
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
+* [**Download MP3 (56MB, 60min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgShv5OMx6gv4Jevn?e=wJ5PwN)  
 
 TRACKLIST:  
 
