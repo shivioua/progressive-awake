@@ -12,28 +12,28 @@ Tags: trance, uplifting, tech
 
 TRACKLIST:  
 
-1. Coloured Light (Pants-Off! Mix) / Neelix 7:52
-2. Savanna (Alexander Popov Remix) / The Thrillseekers 7:45
-3. One By One 2009 (Jason Van Wyk Remix) / Tiff Lacey, Javah 7:48
-4. Another World (Original Vocal Mix) / Jaren, Mitiska, Cerf 8:00
-5. I'll Listen feat. Ana Criado (Original Mix) / Armin van Buuren, Ana Criado 7:22
-6. Where Life Takes Us (Original Mix) / Ben Gold 7:26
-7. Broken Down (Shogun Remix) / Tritonal, Meredith Call 7:54
-8. Sugar (Original Mix) / Store N Forward 7:00
-9. Blue Skies (Bjorn Akesson Remix) / Impulsive Drive 8:10
-10. Deep Emotions (Original Mix) / T-Pe3 6:10
-11. Be There 4 U (Mat Zo Remix) / Kyau &amp; Albert 8:05
-12. Silent Space feat. Al Jet (Original Mix) / Stan Kolev, Matan Caspi, Al Jet 7:09
-13. Orchids (Original Mix) / Erick Strong 6:37
-14. 7th Grade (Original Mix) / Neelix 6:04
-15. Everafter (Craig Connelly Remix) / Tritonal, Cristina Soto 8:08
-16. Lifted (Mat Zo Remix) / Tritonal, Cristina Soto 7:52
-17. Where Do We Begin (Andrew Rayel Remix) / Tenishia 7:30
-18. Blasted (Ferry Corsten Remix) / Sidney Samson 7:07
-19. Robot Monsters (Neelix Remix) / Meller 5:28
-20. Raging feat. Jan Johnston (Alexander Popov Vocal Remix) / Jan Johnston, Cosmic Gate 7:32
-21. Spectrum Feat. Matthew Koma (Armin Van Buuren Remix) / Zedd, Matthew Koma 6:30
-22. Unika (Antillas Rework) / Dankann 5:56
+1. Neelix - Coloured Light (Pants-Off! Mix) / 7:52
+2. The Thrillseekers - Savanna (Alexander Popov Remix) / 7:45
+3. Tiff Lacey, Javah - One By One 2009 (Jason Van Wyk Remix) / 7:48
+4. Jaren, Mitiska, Cerf - Another World (Original Vocal Mix) / 8:00
+5. Armin van Buuren, Ana Criado - I'll Listen feat. Ana Criado (Original Mix) / 7:22
+6. Ben Gold - Where Life Takes Us (Original Mix) / 7:26
+7. Tritonal, Meredith Call - Broken Down (Shogun Remix) / 7:54
+8. Store N Forward - Sugar (Original Mix) / 7:00
+9. Impulsive Drive - Blue Skies (Bjorn Akesson Remix) / 8:10
+10. T-Pe3 - Deep Emotions (Original Mix) / 6:10
+11. Kyau & Albert - Be There 4 U (Mat Zo Remix) / 8:05
+12. Stan Kolev, Matan Caspi, Al Jet - Silent Space feat. Al Jet (Original Mix) / 7:09
+13. Erick Strong - Orchids (Original Mix) / 6:37
+14. Neelix - 7th Grade (Original Mix) / 6:04
+15. Tritonal, Cristina Soto - Everafter (Craig Connelly Remix) / 8:08
+16. Tritonal, Cristina Soto - Lifted (Mat Zo Remix) / 7:52
+17. Tenishia - Where Do We Begin (Andrew Rayel Remix) / 7:30
+18. Sidney Samson - Blasted (Ferry Corsten Remix) / 7:07
+19. Meller - Robot Monsters (Neelix Remix) / 5:28
+20. Jan Johnston, Cosmic Gate - Raging feat. Jan Johnston (Alexander Popov Vocal Remix) / 7:32
+21. Zedd, Matthew Koma - Spectrum Feat. Matthew Koma (Armin Van Buuren Remix) / 6:30
+22. Dankann - Unika (Antillas Rework) / 5:56
 
 All tracks are available to buy on <a href="http://beatport.com/">Beatport</a>.
 Enjoy.
@@ -43,4 +43,4 @@ Enjoy.
 
 [**BACK TO MAIN PAGE**](./README.md)
 
----- 
+----
