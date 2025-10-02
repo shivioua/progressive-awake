@@ -5,7 +5,7 @@
 Date: 2016-09-25    
 Tags:  dance, progressive house, vocal    
 
-[![Progressive Awake: Playpool (September 2016)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/b/1/f/5/65d1-7608-48cb-949f-f836a56b081f)](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)
+[![Progressive Awake: Playpool (September 2016)](./images/playpool-september-2016.jpg)](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)
   
 * [**Listen on MIXCLOUD**](http://www.mixcloud.com/progressiveawake/playpool-september-2016/)  
 * [**Listen on SOUNDCLOUD**](https://soundcloud.com/progressive-awake/playpool-september-2016/)  
@@ -24,7 +24,7 @@ TRACKLIST:
 09. jasper forks - river flows in you (club mix)  
 
 
-Enjoy & support artists by [buying their music](http://www.junodownload.com/charts/mixcloud/progressiveawake/playpool-september-2016/495514471)!
+Enjoy & support artists by [buying their music](http://beatport.com)!
 
 ----
 
