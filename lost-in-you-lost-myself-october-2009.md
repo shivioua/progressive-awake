@@ -5,9 +5,10 @@
 Date: 2009-10-15    
 Tags:  progressive house, tech house    
 
-[![Progressive Awake: Lost in You, lost myself... (October 2009)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4MVFMaXBma0JRR2s)](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)
+[![Progressive Awake: Lost in You, lost myself... (October 2009)](./images/lost-in-you-lost-myself-october-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/lost-in-you-lost-myself-october-2009/)
 
-* [**Download MP3 (89MB , 65min)**](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)  
+* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/lost-in-you-lost-myself-october-2009/)
+* [**Download MP3**](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)  
 
 TRACKLIST:  
 
