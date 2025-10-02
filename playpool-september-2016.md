@@ -3,7 +3,7 @@
 ----
 
 Date: 2016-09-25    
-Tags:  dance, progressive house, vocal    
+Tags: dance, progressive house, vocal    
 
 [![Progressive Awake: Playpool (September 2016)](./images/playpool-september-2016.jpg)](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)
   
