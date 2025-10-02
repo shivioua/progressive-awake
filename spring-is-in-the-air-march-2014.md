@@ -5,9 +5,10 @@
 Date: 2014-03-19  
 Tags: progressive house  
 
-[![Progressive Awake: Spring is in the air (March 2014)](https://drive.google.com/uc?export=download&id=0B1aIvu0NI6o4YlJ4RVJLUWU4R3c)](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
+[![Shivioua - Spring is in the air (March 2014)](./images/spring-is-in-the-air-march%202014.jpg)](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
 
 * [**Listen on SOUNDCLOUD**](https://soundcloud.com/progressive-awake/spring-is-in-the-air-march-2014)
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/spring-is-in-the-air-march-2014/)
 * [**Download MP3**](https://1drv.ms/u/s!AmzuuXrjf51v2LMAHf6Z2rZ6N9s4Ug)
 
 Tracklist:
