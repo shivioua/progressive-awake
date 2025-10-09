@@ -7,7 +7,7 @@ Tags: trance, uplifting, tech
 
 [![Shivioua - Different Kind Of Life (October 2012)](./images/different-kind-of-life-october-2012.jpg)](https://www.mixcloud.com/progressiveawake/progressive-awake-different-kind-of-life-october-2012/)
 
-* [**Listen at MIXCLOUD**](http://www.mixcloud.com/progressiveawake/progressive-awake-different-kind-of-life-october-2012/)  
+* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/progressive-awake-different-kind-of-life-october-2012/)  
 * [**Download MP3**](https://1drv.ms/u/s!Alo3H0XlzdZxgRAbK4bX36Oew9Me?e=5bVelK)  
 
 TRACKLIST:  

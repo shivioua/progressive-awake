@@ -7,7 +7,7 @@ Tags: dance, progressive house, vocal
 
 [![Progressive Awake: Playpool (September 2016)](./images/playpool-september-2016.jpg)](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)
   
-* [**Listen on MIXCLOUD**](http://www.mixcloud.com/progressiveawake/playpool-september-2016/)  
+* [**Listen on MIXCLOUD**](https://www.mixcloud.com/progressiveawake/playpool-september-2016/)  
 * [**Listen on SOUNDCLOUD**](https://soundcloud.com/progressive-awake/playpool-september-2016/)  
 * [**Download MP3**](https://1drv.ms/u/s!Alo3H0XlzdZxgW9fRhK6BaRHljuX?e=bDamuY)  
   

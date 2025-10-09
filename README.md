@@ -1,6 +1,6 @@
 ![Progressive Awake](./progressive-awake-logo.png)
 
-[Mixcloud](http://www.mixcloud.com/progressiveawake/), [Soundcloud](https://soundcloud.com/shivioua/sets/progressive-awake-sets), [YouTube](https://www.youtube.com/channel/UCxr4h5AuON5GtUV-dNCvgCA), [Spotify](https://open.spotify.com/playlist/2t2d8XXigBzIN9VVOZUTm6), [Instagram](https://www.instagram.com/progressiveawake/), [Facebook](https://www.facebook.com/ProgressiveAwake), [Twitter](https://twitter.com/progawake)
+[Mixcloud](https://www.mixcloud.com/progressiveawake/), [Soundcloud](https://soundcloud.com/shivioua/sets/progressive-awake-sets), [YouTube](https://www.youtube.com/channel/UCxr4h5AuON5GtUV-dNCvgCA), [Spotify](https://open.spotify.com/playlist/2t2d8XXigBzIN9VVOZUTm6), [Instagram](https://www.instagram.com/progressiveawake/), [Facebook](https://www.facebook.com/ProgressiveAwake), [Twitter](https://twitter.com/progawake)
 
 # Sets
 
