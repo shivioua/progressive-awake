@@ -5,7 +5,7 @@
 Date: *2009-06-14*  
 Tags: *#progressive house*, *#progressive trance*      
 
-[![Shivioua - Lobotomia!!! (June 2009)](./images/lobotomia-june-2009.jpg)](https://youtu.be/8Utd1gg3zlM)
+[![Shivioua - Lobotomia!!! (June 2009)](./images/lobotomia-june-2009.jpg)](https://www.youtube.com/watch?v=lVTyWygA9K4)
 
 ### Description
 
