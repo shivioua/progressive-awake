@@ -5,7 +5,7 @@
 Date: 2009-10-15    
 Tags:  progressive house, tech house    
 
-[![Progressive Awake: Lost in You, lost myself... (October 2009)](./images/lost-in-you-lost-myself-october-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/lost-in-you-lost-myself-october-2009/)
+[![Progressive Awake: Lost in You, lost myself... (October 2009)](./images/lost-in-you-lost-myself-october-2009.png)](https://www.mixcloud.com/progressiveawake2010/lost-in-you-lost-myself-october-2009/)
 
 * [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/lost-in-you-lost-myself-october-2009/)
 * [**Download MP3**](https://1drv.ms/u/s!Alo3H0XlzdZxgVrE5AHnlhXUUwRR?e=AIJWHg)  
