@@ -7,7 +7,7 @@ Tags: progressive house, indie dance, nu disco, tech house, deep house, electron
 
 [![Progressive Awake: Uncharted Waters (June 2015)](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/c/7/2/8/51fd-b617-4dbc-94f5-7696dc9bf90d.jpg)](https://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
 
-* **[Listen on MIXCLOUD](https://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)
+* **[Listen on MIXCLOUD](https://www.mixcloud.com/progressiveawake/uncharted-waters-june-2015/)**
 * **[Download MP3 (159MB)](https://1drv.ms/u/s!AmzuuXrjf51v2LMEsjw_jud9W4pgmQ?e=OMZdHV)**
 
 Tracklist:  
