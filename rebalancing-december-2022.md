@@ -13,7 +13,10 @@ Tags: *#melodic techno*, *#progressive house*, *#deep house*, *#dark house*
 
 ### Tracklist
 
-*Tracklist coming on demand...*
+* Cuetto - Just for You (Original Mix)
+* ...
+
+*Full tracklist will be provided sooner or later... 😉*
 
 If you like what I am creating then feel free to support me on [Patreon](https://www.patreon.com/shivioua) or [buy me a vinyl](https://www.buymeacoffee.com/shivioua).  
 Enjoy!  
