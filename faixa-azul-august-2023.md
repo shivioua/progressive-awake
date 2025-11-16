@@ -3,7 +3,7 @@
 ----
 
 Date: *2023-08-06*  
-Tags: *#melodic techno*, *#progressive house*, *#deep house*, *#dark house*
+Tags: *#neo trance*, *#progressive house*, *#techno*, *#deep house*, *#tech house*, *#deep techno*, *#house*
 
 [![Shivioua - Rebalancing (December 2022)](./progressive-awake-logo.png)](https://www.mixcloud.com/progressiveawake2008/faixa-azul-august-2023/)
 
