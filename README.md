@@ -5,6 +5,8 @@
 # Sets
 
 * [**Poljica (August 2023)**](./poljica-august-2023.md)
+* [Faixa Azul (June 2023)](./faixa-azul-august-2023.md)
+* [Rebalancing (December 2022)](./rebalancing-december-2022.md)
 * [Lullaby (December 2021)](./lullaby-december-2021.md)
 * [Somebody New Vol. 3 (November 2021)](./somebody-new-vol-3-november-2021.md)
 * [Bit Harder (April 2021)](./bit-harder-april-2021.md)
