@@ -27,7 +27,7 @@ A journey through progressive house, electronica, melodic techno, trance and voc
 Turn it up. Close your eyes. Let the story unfold...
 
 * [**Listen at YOUTUBE**](https://www.youtube.com/watch?v=npqAw4YDzTA)
-* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/hypnotized-by-your-light-february-2021/) hypnotized-by-your-light-february-2021/) 
+* [**Listen at MIXCLOUD**](https://www.mixcloud.com/progressiveawake/hypnotized-by-your-light-february-2021/) 
 
 ### Tracklist
 
