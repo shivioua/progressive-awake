@@ -11,16 +11,16 @@ Tags: *#progressive* *#house* *#electronica* *#melodic* *#techno* *#trance*
 
 ----
 
-Shortly after a visit to Blue Oyster in Warsaw, winter finally decided to show up. The sudden snowfall made daily bike commutes a little more challenging — but at the same time it brought back simple joys: pulling the sleds out of the garage and playing in the snow with the kids.
+Shortly after a visit to Blue Oyster in Warsaw, winter finally decided to show up. The sudden snowfall made daily bike commutes a little challenging — but at the same time it brought back simple joys: pulling the sleds out of the garage and playing in the snow with the kids.
 
-January and February were packed with moments — not only musical ones. [Ponio](https://www.youtube.com/@Poniecki/streams) played at [Winylowa Kanciapa](https://www.youtube.com/live/rol_og7UxZo?si=x52F8OTiA-aHW_l_&t=4272), the first ["Gramen"](https://youtu.be/FbhjVp23jwY?si=4plDNAGXlTdBGODS) hosted by [Gramado](https://www.facebook.com/AlunoGramado/) took place (definitely worth repeating one day), birthdays of close friends, Fat Thursday, homemade pizza for Valentine’s Day… something was always happening.
+January and February were packed with moments — not only musical ones. [Ponio](https://www.youtube.com/@Poniecki/streams) played at [Winylowa Kanciapa](https://www.youtube.com/live/rol_og7UxZo?si=x52F8OTiA-aHW_l_&t=4272), the first ["Gramen"](https://youtu.be/FbhjVp23jwY?si=4plDNAGXlTdBGODS) hosted by [Gramado](https://www.facebook.com/AlunoGramado/) took place (definitely worth repeating one day), birthdays of close friends, homemade pizza for Valentine’s Day, Fat Thursday... something was always happening.
 
 And yet, beneath all of it, something bigger was unfolding.  
 A surprise.  
 A shift.  
 A light that changed everything again... 
 
-This set is a reflection of that moment.
+This compilation is a reflection of that moment.
 
 A journey through progressive house, electronica, melodic techno, trance and vocal house — warm basslines, uplifting melodies and hypnotic rhythms flowing like emotions under the surface. It’s late winter turning slowly toward spring. It’s anticipation. It’s gratitude. It’s being carried forward by something you can feel but not yet fully name.
 
