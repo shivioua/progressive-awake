@@ -9,11 +9,27 @@ Genres: *#Progressive House*
 
 [![Shivioua - Effervescence (June 2009)](./images/effervescence-june-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
 
+<!-- effervescence: wrzenie -->
+
 ----
 
 ### Listen on
 
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
+
+### Description
+
+Recorded in June 2009
+
+June was the moment when the wedding season kicked into full gear. The calendar quickly filled with work, weekend gigs and long Sundays spent at university or catching up on sleep. It was an intense but exciting time.
+
+One of the most memorable events I played back then took place at Hotel Jabłoń near Pisz. I still remember the sight of people dancing early in the morning to The Prodigy – Voodoo People. It’s one of those moments that stays with you forever.
+
+Despite the busy schedule, I managed to find a brief moment of calm to record another mix from the Progressive Awake series. Since I barely have any photos from that exact period, the cover artwork comes from a picture taken about a month later during summer holidays in Jastrzębia Góra by the Baltic Sea. Somehow, it perfectly captures the atmosphere and emotions that surrounded me in June 2009.
+
+This set is a small time capsule from that moment — a blend of progressive house energy and reflective melodies, created during a short pause between the rush of work and the anticipation of summer.
+
+Enjoy the journey.
 
 ### TRACKLIST  
 
