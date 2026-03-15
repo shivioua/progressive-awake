@@ -7,7 +7,7 @@ Genres: *#Progressive House*
 
 ----
 
-[![Shivioua - Effervescence (June 2009)](./images/effervescence-june-2009.jpg)](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
+[![Shivioua - Effervescence (June 2009)](./images/effervescence-june-2009.jpg)](https://www.youtube.com/watch?v=5o2TXyr63c8)
 
 <!-- effervescence: wrzenie -->
 
@@ -15,6 +15,7 @@ Genres: *#Progressive House*
 
 ### Listen on
 
+* [**YOUTUBE**](https://www.youtube.com/watch?v=5o2TXyr63c8)
 * [**MIXCLOUD**](https://www.mixcloud.com/progressiveawake2010/effervescence-june-2009/)
 
 ### Description
