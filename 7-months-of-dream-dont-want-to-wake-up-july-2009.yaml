@@ -1,0 +1,40 @@
+project: Progressive Awake
+title: 7 months of dream (July 2009)
+slug: 7-months-of-dream-dont-want-to-wake-up-july-2009
+date: 2009-07-15
+tags:
+  - house
+  - progressivehouse
+  - progressivetrance
+  - techhouse
+audio_path: C:\Users\shivioua\OneDrive\Sets\Progressive Awake\2009-07-15 Seven Months Of Dream\Shivioua - 7 Months Of Dream (July 2009).mp3
+cover_path: C:\Users\shivioua\OneDrive\Sets\Progressive Awake\2009-07-15 Seven Months Of Dream\Shivioua - 7 Months Of Dream (July 2009).jpg
+output_audio_bitrate: 192k
+ffmpeg_path: "C:\\Apps\\ffmpeg\\bin\\ffmpeg.exe"
+video:
+  width: 1920
+  height: 1080
+  crf: 20
+  preset: medium
+youtube:
+  privacy: private
+  publish_at:
+description: |
+  A one-hour journey through house, progressive house, progressive trance and tech house, recorded in July 2009.
+
+  This mix brings back memories of a romantic walk with my girlfriend through the rooftop garden of the Warsaw University Library, and another stretch of private parties during a wedding season that was still going strong.
+
+  It also carries the emotions of preparing the first Progressive Awake event at Club Opium in Warsaw, when excitement, pressure and anticipation were all building up at the same time.
+tracklist:
+  - marcin nowakowski - smooth night
+  - luciano di nardo - anymore (chris reece remix)
+  - fuzzy hair - be free (thomas schwartz mix)
+  - rick costa - broken box (original mix)
+  - starchaser - a new society (thomas schwartz mix)
+  - dj tatana - somebody (leventina remix)
+  - max linen - neon lights (thomas schwartz rmx)
+  - radio k ft. randy roberts - coming (chris reece remix)
+  - dinka - chemistry (original mix)
+  - joanna - sometimes (matt cerf dub mix)
+  - mossy - it works (original mix)
+  - dj tatana - spring breeze (martin roth summer style remix)
