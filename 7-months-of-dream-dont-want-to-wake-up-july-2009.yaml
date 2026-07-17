@@ -21,6 +21,7 @@ video:
   height: 1080
   crf: 20
   preset: medium
+  transition_duration: 2.5  # cross dissolve between tracks in seconds (0 = hard cut)
 youtube:
   privacy: private
   publish_at:
