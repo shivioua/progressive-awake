@@ -27,7 +27,7 @@ It also carries the emotions of preparing the first Progressive Awake event at C
 
 <!-- 🎶 Tracklist: -->
 
-* 00:00 Intro: Marcin Nowakowski - Smooth Night  
+* 00:00 Intro: [Marcin Nowakowski - Smooth Night](https://www.youtube.com/watch?v=62gTKCEemIs)  
 * 04:31 Luciano Di Nardo - Anymore (Chris Reece Remix)  
 * 09:58 Fuzzy Hair - Be Free (Thomas Schwartz Mix)  
 * 14:12 Rick Costa - Broken Box (Original Mix)  
