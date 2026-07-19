@@ -23,9 +23,9 @@ This mix brings back memories of a romantic walk with my girlfriend through the 
 
 It also carries the emotions of preparing the first Progressive Awake event at Club Opium in Warsaw, when excitement, pressure and anticipation were all building up at the same time.
 
-### TRACKLIST  
+### TRACKLIST 🎶  
 
-<!-- 🎶 Tracklist: -->
+Intro song ("Smooth Night") is by one of my favourite Polish artists, Marcin Nowakowski. His music has been with me for many years, and I couldn't imagine a better way to open this mix. If you enjoy smooth jazz, feel free to check out his work:  https://www.nowakowski.net.pl 🎷  
 
 * 00:00 Intro: [Marcin Nowakowski - Smooth Night](https://www.youtube.com/watch?v=62gTKCEemIs)  
 * 04:31 Luciano Di Nardo - Anymore (Chris Reece Remix)  
@@ -39,8 +39,6 @@ It also carries the emotions of preparing the first Progressive Awake event at C
 * 43:44 Joanna - Sometimes (Matt Cerf Dub Mix)  
 * 50:13 Mossy - It Works (Original Mix)  
 * 55:48 DJ Tatana - Spring Breeze (Martin Roth Summer Style Remix)
-
-<!-- 🎷 Intro song ("Smooth Night") is by one of my favourite Polish artists, Marcin Nowakowski. His music has been with me for many years, and I couldn't imagine a better way to open this mix. If you enjoy smooth jazz, feel free to check out his work:  https://www.nowakowski.net.pl -->
 
 All tracks (except of intro) are available to buy on <a href="http://beatport.com" target="_blank">Beatport</a>.  
 Enjoy 🎶  
