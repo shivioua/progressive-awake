@@ -22,7 +22,7 @@ For a long time, I had dreamed of organizing my own club night—bringing togeth
 
 In many ways, this event became a gift to myself and the culmination of more than a year of building the Progressive Awake project.
 
-Joining me that night were **Poniecky, Lazy Boy, After Sky** and **Fusion F**, each contributing to a musical journey that flowed naturally from start to finish. Although attendance wasn't what I had hoped for, the people who were there, the music we shared and the energy of the evening made it an unforgettable experience.
+Joining me that night were **[Poniecky](https://www.youtube.com/@Poniecki), [Turismo](https://www.youtube.com/@fotonagrywki), [After Sky](https://tinyurl.com/after-sky-dj-sets)** and **[Fusion F](https://www.facebook.com/ArtistFusionF/)**, each contributing to a musical journey that flowed naturally from start to finish. Although attendance wasn't what I had hoped for, the people who were there, the music we shared and the energy of the evening made it an unforgettable experience.
 
 Listening back today, I don't hear just another DJ set - I hear the excitement, anticipation and satisfaction of seeing a personal dream become reality.
 
