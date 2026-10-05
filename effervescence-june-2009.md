@@ -20,7 +20,7 @@ Genres: *#Progressive House*
 
 ### Description
 
-Recorded in June 2009
+Captured in June 2009
 
 June was the moment when the wedding season kicked into full gear. The calendar quickly filled with work, weekend gigs and long Sundays spent at university or catching up on sleep. It was an intense but exciting time.
 
