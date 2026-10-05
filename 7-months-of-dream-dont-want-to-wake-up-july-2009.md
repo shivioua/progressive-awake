@@ -17,7 +17,7 @@ Genres: **#House** **#Progressive House** **#Progressive Trance** **#Tech House*
 
 ### Description  
 
-A one-hour journey through house, progressive house, progressive trance and tech house, recorded in July 2009.
+A one-hour journey through house, progressive house, progressive trance and tech house, captured in July 2009.
 
 This mix brings back memories of a romantic walk with my girlfriend through the rooftop garden of the Warsaw University Library, and another stretch of private parties during a wedding season that was still going strong.
 
