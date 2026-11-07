@@ -4,7 +4,8 @@
 
 # Sets
 
-* [**Backstreet Bar (August 2024)**](./backstreet-bar-august-2024.md)
+* [**Moon Trip B2B (August 2026)**](./moon-trip-b2b-august-2026.md)
+* [Backstreet Bar (August 2024)](./backstreet-bar-august-2024.md)
 * [Poljica (August 2023)](./poljica-august-2023.md)
 * [Faixa Azul (June 2023)](./faixa-azul-august-2023.md)
 * [Rebalancing (December 2022)](./rebalancing-december-2022.md)
